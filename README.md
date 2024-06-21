@@ -2,7 +2,7 @@
 - 🌱 I’m currently studying computer science
 - 👀 I’m interested in computers and stuff
 - ✨ Gaming is great and all, but why play the game when you can mod it. Or even better just make the game.
-- 📫 Discord: LizWiz#5992
+- 📫 Discord: LizWiz14
 
 
 
