@@ -1,8 +1,8 @@
 - 👋 Hi, I’m Liz
-- 🌱 I’m currently studying computer science
+- 🌱 I’m currently asking myself *why we are still here, just to suffer*.
 - 👀 I’m interested in computers and stuff
-- ✨ Gaming is great and all, but why play the game when you can mod it. Or even better just make the game.
-- 📫 Discord: LizWiz14
+- ✨ Gaming is great and all, but why play the game when you can mod it.
+- 📫 Discord: LizWiz14 (I never read the messages anyway)
 
 
 
